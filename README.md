@@ -1,5 +1,5 @@
-# 💫 About Me:
-i am a DATA ANALYTics  Enthusiast
+            HI,,I am SANJAY
+i am a DATA ANALYTICS  Enthusiast
 
 
 ## 🌐 Socials:
